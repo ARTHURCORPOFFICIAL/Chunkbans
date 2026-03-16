@@ -1,2 +1,2 @@
 # Chunkbans
-If you know you know
+Can be used in minecraft or as a super-destructive weapon!
